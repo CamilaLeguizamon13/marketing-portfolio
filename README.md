@@ -92,5 +92,5 @@ A strategic marketing initiative designed to improve customer retention and enga
 - **Tools**: Google Analytics, Hootsuite, Adobe Creative Suite, Asana, Canva, Sprout Social, Figma, SEMrush, WordPress, HubSpot, Mailchimp, Tableau
 
 ## Contact Information
-For inquiries or collaborations, please reach out to me at [your-email@example.com].# marketing-portfolio
+For inquiries or collaborations, please reach out to me at maca.103hotmail.com.# marketing-portfolio
 Professional marketing portfolio showcasing campaigns and case studies
